@@ -1,1 +1,1 @@
-# Task 1 IShool X ODC
+# Task 1 ISchool X ODC
